@@ -7,7 +7,7 @@
 
 ㅤㅤㅤㅤㅤ⏝⊹⏝ㅤ ꒰ა ⑅ ໒꒱ㅤ ⏝⊹⏝
 <img width="601" height="21" alt="Image" src="https://github.com/user-attachments/assets/57d36306-99e1-4113-affb-928452d0d3ff" />
-<img width="634" height="898" alt="Image" src="https://github.com/user-attachments/assets/4f2734d5-7d23-43d8-9ca4-7ee1dce20e61" />
+<img width="634" height="730" alt="Image" src="https://github.com/user-attachments/assets/2ec604b0-5c18-4fad-8fd6-63a78fd57ad6" />
 <img width="601" height="21" alt="Image" src="https://github.com/user-attachments/assets/57d36306-99e1-4113-affb-928452d0d3ff" />
 ㅤㅤㅤㅤㅤ⏝⊹⏝ㅤ ꒰ა ⑅ ໒꒱ㅤ ⏝⊹⏝
 

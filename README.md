@@ -1,9 +1,9 @@
 ### ㅤㅤㅤㅤㅤㅤㅤwᧉlc𖹭mᧉ ! 
 ㅤㅤㅤㅤㅤ ─── ˖ ⋆⊹ ᧔♡᧓ ⊹⋆ ˖ ───
 
-⩋ㅤㅤㅤㅤ[instagram](https://www.instagram.com/vrosfinda?igsh=NmNiODlubTU1NjZk) ﹐ ㅤㅤㅤㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/db142ecc-dea0-4e2d-8cfb-bbba6fab9e21" />
+⩋ㅤㅤㅤㅤ[instɑgrɑm](https://www.instagram.com/vrosfinda?igsh=NmNiODlubTU1NjZk) ﹐ ㅤㅤㅤㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/db142ecc-dea0-4e2d-8cfb-bbba6fab9e21" />
 
-ㅤㅤ⊹ㅤ..ㅤㅤㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6033f045-1fe1-4c07-9322-87f669ab3467" />ㅤ[roblox](https://www.roblox.com/share?code=47c62e8f37592842bc30c56419aadd5c&type=Profile&source=ProfileShare&stamp=1780589922191) ㅤㅤㅤㅤ(ᐡ ⩌⩊⩌ ᐡ)
+ㅤㅤ⊹ㅤ..ㅤㅤㅤ<img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/6033f045-1fe1-4c07-9322-87f669ab3467" />ㅤ[r𖹭bl𖹭x](https://www.roblox.com/share?code=47c62e8f37592842bc30c56419aadd5c&type=Profile&source=ProfileShare&stamp=1780589922191) ㅤㅤㅤㅤ(ᐡ ⩌⩊⩌ ᐡ)
 
 ㅤㅤㅤㅤㅤ⏝⊹⏝ㅤ ꒰ა ⑅ ໒꒱ㅤ ⏝⊹⏝
 <img width="601" height="21" alt="Image" src="https://github.com/user-attachments/assets/57d36306-99e1-4113-affb-928452d0d3ff" />

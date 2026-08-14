@@ -2,6 +2,8 @@
 <img width="1012" height="440" alt="Image" src="https://github.com/user-attachments/assets/60909cad-f3e9-49e4-adc1-e90fb62eae56" />
 ㅤ︶ㅤㅤㅤㅤㅤㅤㅤ 𝄂𝄚𝅦𝄚𝄞𝅄ㅤㅤㅤㅤㅤㅤㅤ︶
 
+<img width="1104" height="116" alt="Image" src="https://github.com/user-attachments/assets/625952f4-3a7a-4fac-83c0-14df925d1d0a" />
+
 ㅤㅤㅤㅤㅤㅤ ⩋ ㅤ𝚆𝚎𝚕𝚌𝚘𝚖𝚎 ! <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/ffdb8038-ad6c-4b5e-b33a-a6f3c33ae0c1" />
 
 ㅤㅤㅤ ㅤ𝚃𝚘𝚍𝚊𝚢'𝚜 𝚘𝚞𝚛 𝚜𝚙𝚎𝚌𝚒𝚊𝚕 𝚖𝚎𝚗𝚞:
@@ -21,5 +23,8 @@
 
 ③ 𝙶𝚊𝚖𝚋𝚒𝚝-𝙸𝚌𝚎 𝙲𝚛𝚎𝚊𝚖 𝙱𝚕𝚞𝚎𝚋𝚎𝚛𝚛𝚢 𝙵𝚕𝚊𝚟𝚘𝚛𝚎𝚍
 <img width="828" height="728" alt="Image" src="https://github.com/user-attachments/assets/50b2b87b-bd92-44cb-a711-ef1a236ee937" />
+ㅤ
 
+ㅤㅤㅤㅤ𝙲𝚑𝚎𝚌𝚔 𝚘𝚞𝚛 𝚠𝚎𝚋𝚜𝚒𝚝𝚎 𝚏𝚘𝚛 𝚖𝚘𝚛𝚎
 
+ㅤㅤㅤㅤㅤㅤ 𝚐𝚘𝚘𝚍 𝚜𝚝𝚞𝚏𝚏 & 𝚏𝚘𝚘𝚍!

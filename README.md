@@ -7,8 +7,7 @@
 ㅤㅤㅤ ㅤ𝚃𝚘𝚍𝚊𝚢'𝚜 𝚘𝚞𝚛 𝚜𝚙𝚎𝚌𝚒𝚊𝚕 𝚖𝚎𝚗𝚞:
 
 ㅤㅤㅤㅤㅤ ──── ୨ 🍽 ୧ ────
-
-ㅤㅤ
+ㅤ
 
 ① 𝚂𝚝𝚛𝚊𝚗𝚐𝚎—𝚂𝚊𝚗𝚍𝚠𝚒𝚌𝚑𝚎𝚜 ⊹ <img width="828" height="704" alt="Image" src="https://github.com/user-attachments/assets/5c9361ee-ef22-415b-bc73-fb8e806b10c2" />
 ㅤㅤ
@@ -16,5 +15,10 @@
 ② 𝙸𝚛𝚘𝚗—𝙷𝚊𝚖 𝚂𝚊𝚗𝚍𝚠𝚒𝚌𝚑𝚎𝚜 ⊹ <img width="828" height="700" alt="Image" src="https://github.com/user-attachments/assets/7d9c18f0-c5fb-47ce-8248-3c7ed5436791" />
 ㅤㅤ
 
-𝚂𝚒𝚐𝚗 𝚘𝚞𝚛 𝚐𝚞𝚎𝚜𝚝𝚋𝚘𝚘𝚔 & 𝚐𝚎𝚝 𝚊 𝙵𝚁𝙴𝙴 𝚜𝚙𝚎𝚌𝚒𝚊𝚕 𝚒𝚌𝚎 𝚌𝚛𝚎𝚊𝚖!
+<img width="736" height="220" alt="Image" src="https://github.com/user-attachments/assets/62fd1822-1f09-4e2f-9713-824fafa6cfe4" />
+ㅤㅤ
+ㅤ
+
+<img width="828" height="728" alt="Image" src="https://github.com/user-attachments/assets/50b2b87b-bd92-44cb-a711-ef1a236ee937" />
+
 

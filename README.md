@@ -35,7 +35,7 @@
 <img width="1196" height="116" alt="Image" src="https://github.com/user-attachments/assets/0342281e-9ec7-44ed-adbd-41fd40b7dbf0" />
 ㅤㅤ
 
-ㅤㅤㅤㅤㅤ▌│█║▌║▌║ ▌│█
+ㅤㅤㅤㅤㅤㅤ▌│█║▌║▌║║ ▌│█
 ㅤㅤ
 ㅤㅤ
 

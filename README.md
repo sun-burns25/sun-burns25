@@ -27,7 +27,7 @@
 ㅤㅤㅤㅤ ㅤ──── ୨ ୧ ────
 ㅤㅤ
 
-ㅤㅤㅤ  𝙲𝚑𝚎𝚌𝚔 𝚘𝚞𝚛 𝚠𝚎𝚋𝚜𝚒𝚝𝚎 𝚏𝚘𝚛 𝚖𝚘𝚛𝚎
+ㅤㅤㅤ ㅤㅤ 𝙲𝚑𝚎𝚌𝚔 𝚘𝚞𝚛 𝚠𝚎𝚋𝚜𝚒𝚝𝚎 𝚏𝚘𝚛 𝚖𝚘𝚛𝚎
 
 ㅤㅤㅤㅤㅤ  𝚐𝚘𝚘𝚍 𝚜𝚝𝚞𝚏𝚏 & 𝚏𝚘𝚘𝚍! <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/55d7682a-00ed-4a4a-9092-da6fe4903f32" />
 ㅤㅤ

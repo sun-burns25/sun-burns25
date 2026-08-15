@@ -6,7 +6,7 @@
 
 ㅤㅤㅤㅤㅤㅤ ⩋ ㅤ𝚆𝚎𝚕𝚌𝚘𝚖𝚎 ! <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/ffdb8038-ad6c-4b5e-b33a-a6f3c33ae0c1" />
 
-ㅤㅤㅤ ㅤ𝚃𝚘𝚍𝚊𝚢'𝚜 𝚘𝚞𝚛 𝚜𝚙𝚎𝚌𝚒𝚊𝚕 𝚖𝚎𝚗𝚞:
+ㅤㅤㅤㅤ ㅤ𝚃𝚘𝚍𝚊𝚢'𝚜 𝚘𝚞𝚛 𝚜𝚙𝚎𝚌𝚒𝚊𝚕 𝚖𝚎𝚗𝚞:
 ㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤ ㅤ──── ୨ ୧ ────

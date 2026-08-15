@@ -40,5 +40,4 @@
 ㅤㅤ
 ㅤㅤ
 
-ㅤㅤㅤㅤ <img width="64" height="18" alt="Image" src="https://github.com/user-attachments/assets/168520b9-c23b-427a-982b-865839cdd684" /> <img width="69" height="18" alt="Image" src="https://github.com/user-attachments/assets/3b6b3335-8f00-4604-b427-225459b19a28" /> <img width="54" height="18" alt="Image" src="https://github.com/user-attachments/assets/8b62127c-a377-4ab9-9760-c66871691e03" />
-<img width="83" height="18" alt="Image" src="https://github.com/user-attachments/assets/621a6a32-26ca-4248-b183-f200ae99fa92" /> <img width="53" height="18" alt="Image" src="https://github.com/user-attachments/assets/d3b67f4a-e87e-4a3f-90ae-a42401d410bf" /> <img width="67" height="18" alt="Image" src="https://github.com/user-attachments/assets/f6232af4-9c37-401d-b96f-91cacfa63847" /> <img width="66" height="18" alt="Image" src="https://github.com/user-attachments/assets/a139abb9-a31e-4f06-81b7-6e4a530ee914" /> 
+ㅤㅤㅤㅤㅤ 𝚂𝚑𝚒𝚗𝚢 𝙱𝚞𝚝𝚝𝚘𝚗𝚜 𝚜𝚘𝚘𝚗...

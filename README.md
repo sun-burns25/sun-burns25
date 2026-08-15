@@ -24,7 +24,7 @@
 ③ 𝙶𝚊𝚖𝚋𝚒𝚝-𝙸𝚌𝚎 𝙲𝚛𝚎𝚊𝚖 𝙱𝚕𝚞𝚎𝚋𝚎𝚛𝚛𝚢 𝙵𝚕𝚊𝚟𝚘𝚛𝚎𝚍
 <img width="828" height="728" alt="Image" src="https://github.com/user-attachments/assets/50b2b87b-bd92-44cb-a711-ef1a236ee937" />
 ㅤ
-ㅤㅤㅤㅤ ──── ୨ ୧ ────
+ㅤㅤㅤㅤ ㅤ──── ୨ ୧ ────
 ㅤㅤ
 
 ㅤㅤㅤ  𝙲𝚑𝚎𝚌𝚔 𝚘𝚞𝚛 𝚠𝚎𝚋𝚜𝚒𝚝𝚎 𝚏𝚘𝚛 𝚖𝚘𝚛𝚎

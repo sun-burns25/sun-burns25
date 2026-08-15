@@ -9,7 +9,7 @@
 ㅤㅤㅤ ㅤ𝚃𝚘𝚍𝚊𝚢'𝚜 𝚘𝚞𝚛 𝚜𝚙𝚎𝚌𝚒𝚊𝚕 𝚖𝚎𝚗𝚞:
 ㅤㅤ
 
-ㅤㅤㅤㅤ ㅤ──── ୨ ୧ ────
+ㅤㅤㅤㅤㅤ ㅤ──── ୨ ୧ ────
 ㅤ
 
 ① 𝚂𝚝𝚛𝚊𝚗𝚐𝚎—𝚂𝚊𝚗𝚍𝚠𝚒𝚌𝚑𝚎𝚜 ⊹ <img width="828" height="704" alt="Image" src="https://github.com/user-attachments/assets/5c9361ee-ef22-415b-bc73-fb8e806b10c2" />
